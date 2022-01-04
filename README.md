@@ -1,4 +1,6 @@
 - 👋 Hi, I’m David Aksel
+- Currently doing my final year at Ariel Technical College
+- In my spare time i also study how to make video games.
 - 📫 How to reach me Davidaksel2@gmail.com
 
 <!---
